@@ -1,0 +1,2 @@
+# cleatalk-info
+Cleatalkプライバシーポリシー
